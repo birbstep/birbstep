@@ -1,4 +1,4 @@
-### Hi ,welcome to my profile 👋
+### Hi, welcome to my profile 👋
 Here are some self-description help you being familiar with me.
 <!--
 - 👯 I’m looking to collaborate on ...
